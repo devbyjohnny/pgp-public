@@ -5,6 +5,6 @@ thank u
 
 # My Socials :D
 
-instagram.com/lostbackboy
+https://www.instagram.com/lostbackboy
 
-twitter.com/lostbackboy
+https://www.twitter.com/lostbackboy
