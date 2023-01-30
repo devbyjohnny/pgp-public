@@ -5,6 +5,6 @@ thank u
 
 johnny / lostbackboy
 
-instagram @lostbackboy
+https://www.instagram.com/lostbackboy
 
 twitter @lostbackboy
